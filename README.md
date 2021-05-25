@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Julian! (@GitHusbando)
+- 👀 I’m interested in systemic sandbox games, bad movies (check out Jesus Christ Vampire Hunter), and whatever random topic I've found recently (Kabuki, historical cooking, etc.).
+- 🌱 I’m currently learning how to make video games, with a focus on programming and art.
+- 💞️ I’m looking to collaborate on video games with interesting systems and in-game creative freedom.
+- 📫 Check out my website: NO LINK YET ¯\_ (ツ)_/¯
